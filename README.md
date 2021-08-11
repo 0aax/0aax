@@ -1,5 +1,5 @@
 ```
 ┏━┓┏━┓┏━┓ ︵ /(^.^/)
-https://0a.ax
-ahx at mit dot edu
+[  web  ] https://0a.ax
+[ email ] ahx at mit dot edu
 ```
